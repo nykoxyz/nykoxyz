@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on gatyamba
 - 📫 How to reach me: discord nykoxyz
 - 😄 Pronouns: no
-- ⚡ Fun fact: feketefejek nem jo emberek
+- ⚡ Fun fact: my skin color is brown
 
 <!---
 nykoxyz/nykoxyz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
