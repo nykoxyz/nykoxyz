@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nykoxyz
 - 👀 I’m interested in skidding
-- 🌱 I’m currently learning: skidding
+- 🌱 I’m currently learning: java and skidding
 - 💞️ I’m looking to collaborate on gatyamba
 - 📫 How to reach me: discord nykoxyz
 - 😄 Pronouns: no
