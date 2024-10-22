@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on gatyamba
 - 📫 How to reach me: discord nykoxyz
 - 😄 Pronouns: no
-- ⚡ Fun fact: niggas are black
+- ⚡ Fun fact: feketefejek nem jo emberek
 
 <!---
 nykoxyz/nykoxyz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
